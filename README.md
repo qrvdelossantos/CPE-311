@@ -1,2 +1,1 @@
-# CPE-311
-for future activities
+Hi, I’m Rizaldy V. Delos Santos. I’m someone who enjoys both the calm and the creative sides of life. I love fishing because it gives me a sense of peace and patience, and I enjoy reading manga for the stories, art, and imagination they bring. Whether I’m out by the water or lost in a good series, I’m always looking for new experiences that help me learn, relax, and grow.
